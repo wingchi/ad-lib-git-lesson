@@ -9,6 +9,6 @@ It was a large ADJECTIVE butterfly net and we were in awe.
 Next, my NOUN (PLURAL) came up to me and asked for my autograph and I gladly did so.
 CELEBRITY and I went to my computer and had a sleepover.
 We ate JUNK FOOD ITEM (PLURAL) and SWEET FOOD (PLURAL).
-We watched NAME OF MOVIE and played GAME.
-Photographers tried to take pictures of us, but my stallion kept them away.
+We watched NAME OF MOVIE and played Cards Against Humanity.
+Photographers tried to take pictures of us, but my NOUN kept them away.
 We had lots of fun and we VERB ENDING IN "ED" all night long.
