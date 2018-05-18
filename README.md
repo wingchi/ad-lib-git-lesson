@@ -7,7 +7,6 @@ I met up with CELEBRITY and we went to eat at RESTAURANT.
 We left there and went to the shoe and saw something amazing.
 It was a large sleepy butterfly net and we were in awe.
 Next, my NOUN (PLURAL) came up to me and asked for my autograph and I gladly did so.
-We watched NAME OF MOVIE and played 
 CELEBRITY and I went to my computer and had a sleepover.
 We ate Doritos and cakes.
 We watched NAME OF MOVIE and played Cards Against Humanity.
