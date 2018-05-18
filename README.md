@@ -7,8 +7,14 @@ I met up with CELEBRITY and we went to eat at RESTAURANT.
 We left there and went to the shoe and saw something amazing.
 It was a large sleepy butterfly net and we were in awe.
 Next, my NOUN (PLURAL) came up to me and asked for my autograph and I gladly did so.
+<<<<<<< HEAD
 CELEBRITY and I went to my computer and had a sleepover.
 We ate JUNK FOOD ITEM (PLURAL) and SWEET FOOD (PLURAL).
 We watched NAME OF MOVIE and played Cards Against Humanity.
+=======
+CELEBRITY and I went to my NOUN and had a sleepover.
+We ate Doritos and cakes.
+We watched NAME OF MOVIE and played GAME.
+>>>>>>> added junk food and sweets
 Photographers tried to take pictures of us, but my NOUN kept them away.
 We had lots of fun and we VERB ENDING IN "ED" all night long.
