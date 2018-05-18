@@ -8,7 +8,7 @@ We left there and went to the shoe and saw something amazing.
 It was a large sleepy butterfly net and we were in awe.
 Next, my hairs came up to me and asked for my autograph and I gladly did so.
 CELEBRITY and I went to my computer and had a sleepover.
-We ate JUNK FOOD ITEM (PLURAL) and SWEET FOOD (PLURAL).
+We ate Doritos and cakes.
 We watched NAME OF MOVIE and played Cards Against Humanity.
 Photographers tried to take pictures of us, but my NOUN kept them away.
 We had lots of fun and we VERB ENDING IN "ED" all night long.
