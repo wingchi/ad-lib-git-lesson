@@ -1,7 +1,7 @@
 # Being Famous
 by Johee, Kathryn, and Stephen
 
-Today I went out of my NOUN to go VERB ENDING IN "ING" and was mobbed by a huge crowd of ANIMAL (PLURAL).
+Today I went out of my grasshopper to go VERB ENDING IN "ING" and was mobbed by a huge crowd of ANIMAL (PLURAL).
 I VERB ENDING IN "ED" to get out of there as fast as I could.
 I met up with CELEBRITY and we went to eat at RESTAURANT.
 We left there and went to the NOUN and saw something amazing.
