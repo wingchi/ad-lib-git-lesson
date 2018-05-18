@@ -6,7 +6,7 @@ I VERB ENDING IN "ED" to get out of there as fast as I could.
 I met up with CELEBRITY and we went to eat at RESTAURANT.
 We left there and went to the shoe and saw something amazing.
 It was a large sleepy butterfly net and we were in awe.
-Next, my NOUN (PLURAL) came up to me and asked for my autograph and I gladly did so.
+Next, my hairs came up to me and asked for my autograph and I gladly did so.
 CELEBRITY and I went to my computer and had a sleepover.
 We ate JUNK FOOD ITEM (PLURAL) and SWEET FOOD (PLURAL).
 We watched NAME OF MOVIE and played Cards Against Humanity.
